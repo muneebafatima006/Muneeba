@@ -1,0 +1,1 @@
+I am Muneeba Fatima from Pakistan. I studied ADP-Artificial Intelligence and I have make some projects and now I'm finding a warm online job for earning. If you searching a person so I uploaded my CV you see my work and contact me on my gmail. Thank You!
